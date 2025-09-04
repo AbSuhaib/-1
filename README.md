@@ -1,3 +1,3 @@
 # -1
-https://absuhaib.github.io/-1/
+https:/store.github.com
 الأمانة ماركت - موقع تسوق إلكتروني
